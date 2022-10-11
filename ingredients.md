@@ -1,0 +1,1 @@
+ Durum wheat, a hard wheat which creates chewy, resilient pasta, and macaroni does not usually include egg. 
